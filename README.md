@@ -1,0 +1,2 @@
+# asaym.github.io
+wasaym
